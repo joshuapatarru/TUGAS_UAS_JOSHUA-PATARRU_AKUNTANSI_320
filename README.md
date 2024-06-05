@@ -1,0 +1,2 @@
+# TUGAS_UAS_JOSHUA-PATARRU_AKUNTANSI_320
+Analisis Penjualan
